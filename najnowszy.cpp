@@ -1,1 +1,1 @@
-Bardzo lubie MINI
+Bardzo lubie KNI
